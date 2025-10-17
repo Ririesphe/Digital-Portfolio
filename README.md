@@ -21,6 +21,8 @@ I achieved a final mark of 100%, showing a complete understanding of business co
 
 
 **2. INTERVIEW SKILLS**
+
+
 **- Evidence**
 <img width="1366" height="607" alt="chrome_xVYFZpkKdE" src="https://github.com/user-attachments/assets/e6cbc20f-dfe1-4c0f-87d8-4484ad0b68f7" />
 
