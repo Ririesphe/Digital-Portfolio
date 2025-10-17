@@ -20,6 +20,8 @@ Result:
 I achieved a final mark of 100%, showing a complete understanding of business communication principles. This experience strengthened my ability to express ideas clearly and respectfully in a professional setting. I now feel confident in writing formal messages, participating in meetings, and adapting my communication style to suit different audiences.
 
 
+---
+
 **2. INTERVIEW SKILLS**
 
 
@@ -40,6 +42,8 @@ I engaged actively with the course materials and practiced structuring responses
 Result:
 I achieved a final mark of 100%, showing that I fully understood the concepts of interview preparation and communication. Through this module, I gained valuable insight into how to answer questions confidently, remain professional under pressure, and demonstrate genuine enthusiasm for a position. I now feel prepared to approach future job interviews with confidence and professionalism.
 
+
+---
 
 **3. MOCK INTERVIEW**
 
@@ -65,6 +69,8 @@ Result:
 Through this activity, I gained valuable experience in presenting myself confidently and professionally in an interview setting. The feedback I received helped me identify areas for improvement, such as maintaining eye contact and giving concise answers. I now feel more comfortable handling real interviews, understanding how to express my strengths effectively and leave a positive impression.
 
 
+---
+
 **4. PROFESSIONAL NETWORKING**
 
 **- Evidence**
@@ -85,6 +91,9 @@ I carefully read and analyzed each question, recalling my prior learning and exp
 
 Result:
 I successfully completed the assessment with a 100% score, showing that I understood the purpose and strategies of professional networking. This exercise reinforced my confidence in attending networking events, following the golden rule of reciprocity, avoiding common mistakes, and starting the networking process effectively. It also improved my awareness of how networking can support career growth and professional relationships.
+
+
+---
  
 **5. WORKPLACE ETIQUETTE**
 **- Evidence**
