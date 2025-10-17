@@ -43,6 +43,8 @@ I achieved a final mark of 100%, showing that I fully understood the concepts of
 **3. MOCK INTERVIEW**
 
 - Evidence
+
+
   Link: https://github.com/user-attachments/assets/f41af720-fc9d-4535-b2df-d15f4b23734b
   <img width="1366" height="607" alt="chrome_cpcMFkQqJ3" src="https://github.com/user-attachments/assets/591fae33-f8e8-4f52-b67a-8a614e8d5dcf" />
 
@@ -84,3 +86,23 @@ I carefully read and analyzed each question, recalling my prior learning and exp
 Result:
 I successfully completed the assessment with a 100% score, showing that I understood the purpose and strategies of professional networking. This exercise reinforced my confidence in attending networking events, following the golden rule of reciprocity, avoiding common mistakes, and starting the networking process effectively. It also improved my awareness of how networking can support career growth and professional relationships.
  
+**5. WORKPLACE ETIQUETTE**
+- Evidence
+  <img width="1366" height="607" alt="chrome_UTALhJ12dK" src="https://github.com/user-attachments/assets/16b49011-1fa6-406f-88a4-87ad3034402b" />
+
+
+
+  **REFLECTION: STAR TECHNIQUE**
+
+
+Situation:
+During the Workplace Etiquette formative assessment, I was tasked with answering questions about professional behavior in the workplace. The focus areas included responding to rude emails, punctuality, handling confidential information, appropriate use of personal devices, and requesting time off for personal reasons.
+
+Task:
+My goal was to demonstrate my understanding of proper workplace etiquette and apply it to everyday professional scenarios to ensure respectful and effective interactions with colleagues and management.
+
+Action:
+I carefully considered each scenario, applying principles of professionalism and ethical behavior. For example, when receiving a rude email, I recognized the importance of responding calmly and professionally rather than reacting emotionally. I also considered correct practices for handling confidential information and appropriate use of personal devices at work. While I initially misjudged the ideal arrival time for a meeting, I reviewed the feedback to better understand punctuality expectations.
+
+Result:
+I achieved an 80% score, reflecting a strong understanding of workplace etiquette with some areas for improvement, particularly regarding punctuality. This exercise reinforced my awareness of professional behavior standards, the importance of discretion, and respectful communication in maintaining a positive work environment.
