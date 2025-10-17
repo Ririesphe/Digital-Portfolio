@@ -5,6 +5,7 @@
  <img width="1366" height="607" alt="chrome_6wHeyiSKHd" src="https://github.com/user-attachments/assets/db014a1b-8728-467f-8d5f-687b5c87ee57" />
 
 - **REFLECTION: STAR TECHNIQUE**
+  
 Situation:
 During the Work Readiness training, I completed the Business Communication module, which focused on professional communication, email etiquette, non-verbal communication, and appropriate workplace language.
 
