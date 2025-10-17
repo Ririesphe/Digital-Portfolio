@@ -18,3 +18,20 @@ I carefully studied each topic, practiced identifying examples of verbal and non
 Result:
 I achieved a final mark of 100%, showing a complete understanding of business communication principles. This experience strengthened my ability to express ideas clearly and respectfully in a professional setting. I now feel confident in writing formal messages, participating in meetings, and adapting my communication style to suit different audiences.
 
+
+**INTERVIEW SKILLS**
+- Evidence
+<img width="1366" height="607" alt="chrome_xVYFZpkKdE" src="https://github.com/user-attachments/assets/e6cbc20f-dfe1-4c0f-87d8-4484ad0b68f7" />
+
+- **REFLECTION: STAR TECHNIQUE**
+  Situation:
+As part of my Work Readiness training, I completed the Interview Skills module, which focused on preparing for job interviews, understanding common interview questions, and learning effective answering strategies such as the CAR (Context, Action, Result) method.
+
+Task:
+My goal was to develop the confidence and knowledge needed to perform effectively in real interviews. I wanted to learn how to present my skills professionally, respond to challenging questions, and make a positive first impression on potential employers.
+
+Action:
+I engaged actively with the course materials and practiced structuring responses using the STAR and CAR methods. I learned how to research companies before an interview, highlight relevant experiences when answering the “Tell me about yourself” question, and discuss weaknesses in a constructive way. I also reflected on how body language and tone can influence how I am perceived during an interview.
+
+Result:
+I achieved a final mark of 100%, showing that I fully understood the concepts of interview preparation and communication. Through this module, I gained valuable insight into how to answer questions confidently, remain professional under pressure, and demonstrate genuine enthusiasm for a position. I now feel prepared to approach future job interviews with confidence and professionalism.
