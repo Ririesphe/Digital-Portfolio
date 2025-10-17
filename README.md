@@ -6,6 +6,7 @@
 
 - **REFLECTION: STAR TECHNIQUE**
   
+  
 Situation:
 During the Work Readiness training, I completed the Business Communication module, which focused on professional communication, email etiquette, non-verbal communication, and appropriate workplace language.
 
