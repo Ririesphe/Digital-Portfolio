@@ -48,6 +48,8 @@ I achieved a final mark of 100%, showing that I fully understood the concepts of
 
 
  **REFLECTION: STAR TECHNIQUE**
+
+ 
 Situation:
 As part of the Work Readiness programme, I completed a Mock Interview Video assessment. This activity was designed to simulate a real job interview experience, allowing me to demonstrate how I would present myself to potential employers and apply the communication and interview skills I had learned.
 
@@ -59,3 +61,26 @@ I prepared by researching common interview questions, reviewing my Interview Ski
 
 Result:
 Through this activity, I gained valuable experience in presenting myself confidently and professionally in an interview setting. The feedback I received helped me identify areas for improvement, such as maintaining eye contact and giving concise answers. I now feel more comfortable handling real interviews, understanding how to express my strengths effectively and leave a positive impression.
+
+
+**4. PROFESSIONAL NETWORKING**
+
+- Evidence
+  <img width="1366" height="607" alt="chrome_C0HHCHkSap" src="https://github.com/user-attachments/assets/46686965-435e-4ef7-867f-27345567e90e" />
+
+
+ **REFLECTION: STAR TECHNIQUE**
+
+
+Situation:
+During my Professional Networking formative assessment, I was tasked with understanding the key principles and strategies of networking in a professional context. The activity included multiple-choice questions that tested my knowledge on networking events, the golden rule of networking, common mistakes to avoid, and the initial steps in creating a professional network.
+
+Task:
+My goal was to accurately demonstrate my understanding of professional networking concepts, including how to approach networking events, build meaningful connections, and avoid common pitfalls. I needed to identify correct strategies and apply theoretical knowledge practically.
+
+Action:
+I carefully read and analyzed each question, recalling my prior learning and experience with networking. For questions I initially answered incorrectly, I reviewed the feedback, re-evaluated the options, and applied reasoning to select the correct answers. I ensured I understood the importance of first impressions, giving and receiving value in a network, and systematically building my professional contacts.
+
+Result:
+I successfully completed the assessment with a 100% score, showing that I understood the purpose and strategies of professional networking. This exercise reinforced my confidence in attending networking events, following the golden rule of reciprocity, avoiding common mistakes, and starting the networking process effectively. It also improved my awareness of how networking can support career growth and professional relationships.
+ 
