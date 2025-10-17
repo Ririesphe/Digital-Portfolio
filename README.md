@@ -1,7 +1,7 @@
 # Digital-Portfolio
 **1. BUSINESS COMMUNICATION**
 
-- Evidence
+**- Evidence**
  <img width="1366" height="607" alt="chrome_dChdTnIg4Y" src="https://github.com/user-attachments/assets/e2174c04-36d6-49f6-bb59-871bb633f365" />
 
 - **REFLECTION: STAR TECHNIQUE**
@@ -42,7 +42,7 @@ I achieved a final mark of 100%, showing that I fully understood the concepts of
 
 **3. MOCK INTERVIEW**
 
-- Evidence
+**- Evidence**
 
 
   Link: https://github.com/user-attachments/assets/f41af720-fc9d-4535-b2df-d15f4b23734b
@@ -67,7 +67,7 @@ Through this activity, I gained valuable experience in presenting myself confide
 
 **4. PROFESSIONAL NETWORKING**
 
-- Evidence
+**- Evidence**
   <img width="1366" height="607" alt="chrome_C0HHCHkSap" src="https://github.com/user-attachments/assets/46686965-435e-4ef7-867f-27345567e90e" />
 
 
@@ -87,7 +87,7 @@ Result:
 I successfully completed the assessment with a 100% score, showing that I understood the purpose and strategies of professional networking. This exercise reinforced my confidence in attending networking events, following the golden rule of reciprocity, avoiding common mistakes, and starting the networking process effectively. It also improved my awareness of how networking can support career growth and professional relationships.
  
 **5. WORKPLACE ETIQUETTE**
-- Evidence
+**- Evidence**
   <img width="1366" height="607" alt="chrome_UTALhJ12dK" src="https://github.com/user-attachments/assets/16b49011-1fa6-406f-88a4-87ad3034402b" />
 
 
