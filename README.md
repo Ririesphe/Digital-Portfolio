@@ -24,6 +24,7 @@ I achieved a final mark of 100%, showing a complete understanding of business co
 - Evidence
 <img width="1366" height="607" alt="chrome_xVYFZpkKdE" src="https://github.com/user-attachments/assets/e6cbc20f-dfe1-4c0f-87d8-4484ad0b68f7" />
 
+
 - **REFLECTION: STAR TECHNIQUE**
   Situation:
 As part of my Work Readiness training, I completed the Interview Skills module, which focused on preparing for job interviews, understanding common interview questions, and learning effective answering strategies such as the CAR (Context, Action, Result) method.
