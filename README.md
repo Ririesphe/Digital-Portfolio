@@ -92,7 +92,7 @@ I successfully completed the assessment with a 100% score, showing that I unders
 
 
 
-  **REFLECTION: STAR TECHNIQUE**
+**REFLECTION: STAR TECHNIQUE**
 
 
 Situation:
