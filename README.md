@@ -5,7 +5,7 @@
  <img width="1366" height="607" alt="chrome_dChdTnIg4Y" src="https://github.com/user-attachments/assets/e2174c04-36d6-49f6-bb59-871bb633f365" />
 
 - **REFLECTION: STAR TECHNIQUE**
-  
+
   
 Situation:
 During the Work Readiness training, I completed the Business Communication module, which focused on professional communication, email etiquette, non-verbal communication, and appropriate workplace language.
@@ -27,7 +27,7 @@ I achieved a final mark of 100%, showing a complete understanding of business co
 - **REFLECTION: STAR TECHNIQUE**
 
   
-  Situation:
+Situation:
 As part of my Work Readiness training, I completed the Interview Skills module, which focused on preparing for job interviews, understanding common interview questions, and learning effective answering strategies such as the CAR (Context, Action, Result) method.
 
 Task:
