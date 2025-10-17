@@ -24,7 +24,7 @@ I achieved a final mark of 100%, showing a complete understanding of business co
 **- Evidence**
 <img width="1366" height="607" alt="chrome_xVYFZpkKdE" src="https://github.com/user-attachments/assets/e6cbc20f-dfe1-4c0f-87d8-4484ad0b68f7" />
 
-- **REFLECTION: STAR TECHNIQUE**
+ ** - REFLECTION: STAR TECHNIQUE**
 
   
 Situation:
@@ -49,7 +49,7 @@ I achieved a final mark of 100%, showing that I fully understood the concepts of
   <img width="1366" height="607" alt="chrome_cpcMFkQqJ3" src="https://github.com/user-attachments/assets/591fae33-f8e8-4f52-b67a-8a614e8d5dcf" />
 
 
- **REFLECTION: STAR TECHNIQUE**
+ **- REFLECTION: STAR TECHNIQUE**
 
  
 Situation:
@@ -71,7 +71,7 @@ Through this activity, I gained valuable experience in presenting myself confide
   <img width="1366" height="607" alt="chrome_C0HHCHkSap" src="https://github.com/user-attachments/assets/46686965-435e-4ef7-867f-27345567e90e" />
 
 
- **REFLECTION: STAR TECHNIQUE**
+ **- REFLECTION: STAR TECHNIQUE**
 
 
 Situation:
@@ -92,7 +92,7 @@ I successfully completed the assessment with a 100% score, showing that I unders
 
 
 
-**REFLECTION: STAR TECHNIQUE**
+**- REFLECTION: STAR TECHNIQUE**
 
 
 Situation:
