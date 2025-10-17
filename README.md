@@ -38,3 +38,24 @@ I engaged actively with the course materials and practiced structuring responses
 
 Result:
 I achieved a final mark of 100%, showing that I fully understood the concepts of interview preparation and communication. Through this module, I gained valuable insight into how to answer questions confidently, remain professional under pressure, and demonstrate genuine enthusiasm for a position. I now feel prepared to approach future job interviews with confidence and professionalism.
+
+
+**3. MOCK INTERVIEW**
+
+- Evidence
+  Link: https://github.com/user-attachments/assets/f41af720-fc9d-4535-b2df-d15f4b23734b
+  <img width="1366" height="607" alt="chrome_cpcMFkQqJ3" src="https://github.com/user-attachments/assets/591fae33-f8e8-4f52-b67a-8a614e8d5dcf" />
+
+
+ **REFLECTION: STAR TECHNIQUE**
+Situation:
+As part of the Work Readiness programme, I completed a Mock Interview Video assessment. This activity was designed to simulate a real job interview experience, allowing me to demonstrate how I would present myself to potential employers and apply the communication and interview skills I had learned.
+
+Task:
+My task was to prepare and record a mock interview where I answered typical job interview questions clearly, confidently, and professionally. The goal was to showcase my understanding of effective communication, body language, and the STAR response technique during the interview process.
+
+Action:
+I prepared by researching common interview questions, reviewing my Interview Skills training material, and practicing how to answer using the STAR method. I dressed formally, maintained professional posture, and ensured a quiet environment with a clear background for recording. During the interview, I focused on giving structured answers that highlighted my skills, experiences, and career goals.
+
+Result:
+Through this activity, I gained valuable experience in presenting myself confidently and professionally in an interview setting. The feedback I received helped me identify areas for improvement, such as maintaining eye contact and giving concise answers. I now feel more comfortable handling real interviews, understanding how to express my strengths effectively and leave a positive impression.
